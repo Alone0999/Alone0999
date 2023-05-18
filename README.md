@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Alone0999
+- 👀 I’m interested in scripting 
+- 🌱 I’m currently learning new languages day by day
+- 💞️ I’m looking to collaborate on games and web devlopment
+- 📫 How to reach me dm me on discord #jacobbb#6771
